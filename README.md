@@ -6,4 +6,4 @@
 
 
 ㅤ<p align="center">
-  [ROFL GET REKTD](https://youareanidiot.atabook.org/)
+  [ROFL GET REKTD. COME AND GET ME, ZERSTORUNGSWALZE!](https://youareanidiot.atabook.org/)
