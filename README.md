@@ -6,4 +6,4 @@
 
 
 ㅤ<p align="center">
-  [ROFL! GET REKTD.](https://youareanidiot.atabook.org/)
+  [CLICK ME! TRUST ME!](https://youareanidiot.atabook.org/)
